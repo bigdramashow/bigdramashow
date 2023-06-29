@@ -13,6 +13,8 @@
 
 - 📫 How to reach me **idd135@student.bham.ac.uk**
 
+- 📄 Know about my experiences [here](https://www.linkedin.com/in/issad/)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
